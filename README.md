@@ -3,6 +3,6 @@ scraping specify country application on playtore
 
 by 
 
-sadjo legbane saraï
-hapsatou oumarou
-bibee ibrahim
+sadjo legbane saraï, 
+hapsatou oumarou, 
+bibee ibrahim.
